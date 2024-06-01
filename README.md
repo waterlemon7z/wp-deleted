@@ -6,3 +6,4 @@ ipa 공유 링크는 남겨두겠습니다.
 [https://mega.nz/folder/8LECEJQL#Gs2vFHYk5j0y748jFpgMiA](https://mega.nz/folder/8LECEJQL#Gs2vFHYk5j0y748jFpgMiA)   
    
 26년도에 다시 해보겠습니다. 감사합니다!
+vise_polls.0a@icloud.com
